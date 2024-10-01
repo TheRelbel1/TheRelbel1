@@ -2,7 +2,7 @@
 - 👀 I’m interested in Video Games/Hardware 
 - 🌱 I’m currently learning C#
 - 💞️ I’m looking to collaborate on (Nothing Rn)
-- 📫 How to reach me: DM me
+- 📫 How to reach me: DM me on Instagram: TheRelbel1
 - 😄 Pronouns: He/Him 
 - ⚡ Fun fact: I love Video Games, PCs, Handhelds, Music, and i Play Guitar 
 
